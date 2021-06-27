@@ -1,2 +1,1 @@
 Spencer Shim
-19
